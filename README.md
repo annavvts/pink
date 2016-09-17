@@ -1,0 +1,1 @@
+Pink for Github Pages
